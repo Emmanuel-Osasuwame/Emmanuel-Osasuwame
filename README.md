@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Emmanuel-Osasuwame
+- 👀 I’m interested in graphics design
+- 🌱 I’m currently learning CSS and HTML
+- 📫 How to reach me? Don't.
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i died next century
